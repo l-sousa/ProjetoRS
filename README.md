@@ -1,3 +1,3 @@
 # ProjetoRS
 
-Tive 20 manos
+Tive 20 manos. No shit.
